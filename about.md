@@ -1,1 +1,1 @@
-About page
+My Name is Ishan Sharma, I am a first year UX student and also minoring in BTM. 
